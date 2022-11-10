@@ -1,3 +1,0 @@
-lollllloloolololololololol
-
-ayam goleng
